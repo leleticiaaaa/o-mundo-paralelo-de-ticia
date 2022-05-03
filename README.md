@@ -1,1 +1,0 @@
-# o-mundo-paralelo-de-ticia
